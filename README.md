@@ -1,1 +1,0 @@
-# systechinfosec.github.io
